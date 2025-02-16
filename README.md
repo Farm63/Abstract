@@ -10,7 +10,9 @@
 ### Interacting with the Abstract ecosystem
 
 - Collect Abstract Badges
-- Abstract Trade Daily 2-4 Times
-- Use Dapps and Do transactions Daily to Earn even more XP 🔥
+- Trade Daily 1-2 Times
+- upvote
+- Use Dapps
+- Steam tip to Earn even more XP 🔥
 
-## Dapps
+## Ecosystem Dapps
